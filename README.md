@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hannaburkovska
+ 👋 Hi, I’m @hannaburkovska
 - 👀 I’m interested in psychology, art, design, architecture
 - 🌱 I’m currently learning Norwegian and English.
 - 💞️ I’m looking to collaborate on interesting people.
